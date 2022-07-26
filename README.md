@@ -1,6 +1,6 @@
 ### Pensamento-Computacional-1-E
 repositório criado para postagem de trabalhos de pensamento computacional
-**joao vitor 12
+**joao vitor 12 kaique 13 
 o poema o poema 
 essa estranha
 mascara mais
